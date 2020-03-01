@@ -1,1 +1,0 @@
-# lisens.craig-day.com
